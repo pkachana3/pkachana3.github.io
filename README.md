@@ -1,1 +1,1 @@
-Pujith Kachana's personal Website
+Pujith Kachana's Personal Website
